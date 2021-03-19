@@ -1,2 +1,0 @@
-# OSU-REPLAYS-re
-new
